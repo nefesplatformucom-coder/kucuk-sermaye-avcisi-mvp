@@ -1,0 +1,1 @@
+# kucuk-sermaye-avcisi-mvp
